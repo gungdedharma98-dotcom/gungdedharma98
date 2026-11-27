@@ -15,7 +15,7 @@
 
 ###  About Me
 - Student from SMK Ti Bali Global Denpasar.
-- My hobbie is playing tradisional music.
+- My hobbie is playing tradicional music
 - Im fiveteen years old.
 - Fun fact: *AI 50% Brain 50%*
 - Always Learning New Things
